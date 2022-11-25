@@ -1,4 +1,4 @@
-# Strogonoff de Frango:meat_on_bone:
+# Strogonoff de Carne:meat_on_bone:
 
 
 
